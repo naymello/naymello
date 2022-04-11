@@ -1,4 +1,4 @@
-### Hello, world! 👩‍💻
+### Hello, world! 👨‍💻
 
 Ever since I was a kid I'm really into technology, solving logic/math problems, helping people around me and learning new stuff all the time. I guess there was no escape. Besides that, my interest goes from watching all the football matches I can to reading philosophy books and listening to all the music the '70s have to offer.
 
